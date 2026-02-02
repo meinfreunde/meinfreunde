@@ -1,7 +1,5 @@
 <p align="center">
 </a>
-<img src="https://komarev.com/ghpvc/?username=thanossu&color=2f0100&style=for-the-badge&label=NAH+IT'S+JUST+ME+NIGGA+!!!" />⠀
+<img src="https://komarev.com/ghpvc/?username=thanossu&color=5c2558&style=for-the-badge&label=BAMF+!" />⠀
 <p align="center">
-<a href="https://www.tumblr.com/sillylittlegaymer"><img src="https://i.postimg.cc/Bv7qWQwr/ezgif-3b2082c6b35937ef.png"</a>
-<p align="center">
-<a href="https://swaggot.atabook.org/"><img src="https://i.postimg.cc/Qd2t4qVn/ezgif-1d8446242fad0065.png" /><a href="https://rentry.co/starboy"><img src="https://file.garden/aSATqW7wGDOKPZEO/ezgif-17281309ed338651%20(1).png" />
+<a href="https://www.tumblr.com/znt999"><img src="https://i.postimg.cc/HsrzX8WS/Untitled1449-20260202010634-(1).png"</a>
